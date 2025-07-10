@@ -1,1 +1,1 @@
-# avsuyaz-l-m
+# avsu_yazılım
